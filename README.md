@@ -8,6 +8,6 @@
 
 📫 How to reach me email : 002shubhamjain@gmail.com
 
-📄 Know about my experiences http://linkedin.com/in/qashubhamjain
+📄 Know about my experiences http://linkedin.com/in/qatestershubham
 
 ⚡ Fun fact I have written Quotes on Instagram : Shubhzindgi 
