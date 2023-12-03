@@ -2,7 +2,7 @@
 
 👯 I’m looking to collaborate on API Testing, Selenium, Automation Frameworks
 
-👨‍💻 All of my projects are available at https://github.com/Qashubhamjain
+👨‍💻 All of my projects are available at https://github.com/QAshubhamjain
 
 💬 Ask me about all manual testing concepts and we are following the agile methodologies.  
 
