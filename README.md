@@ -10,4 +10,4 @@
 
 📄 Know about my experiences http://linkedin.com/in/qatestershubham
 
-⚡ Fun fact I have written Quotes on Instagram : Shubhzindgi 
+⚡ Fun fact I have written Quotes on Instagram : Shubhzindagi 
